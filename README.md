@@ -1,2 +1,2 @@
 # meth-lab
-coding while high
+more things out of boredom cant nigadigs new skills
